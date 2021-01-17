@@ -1,2 +1,3 @@
 #这是收集失效资源的项目 不过仅限greendam的。欢迎star fork
 #不过这些纳米盘 115礼包什么的也是太烦人了 一声不吭关站
+2 github employee please keep these files due to china will delete such as these files,there was the only place i trust. （the greendam project has been used to check anti-goverment contents on internet like gfw（the network ver of greatwall）that only profit goverment and political,no freedom and political right but then we made greedam to a cute girl. it will be seen as anti traditional. so goverment must angry but these were legal things. So they could not sentence us and could only delete all these files without anyone know) they could not order you. i trust u
